@@ -7,6 +7,14 @@ https://share.qlbalaa.com/kylina/
 
 https://rebrand.ly/typeirz
 
+国内蓝奏网盘下载
+https://wws.lanzous.com/iFUxNj973zi
+
+https://wws.lanzous.com/b01bxn99c
+
+官网下载：（需要科学尚往才能打开）
+https://share.kylinaccelerator.com/kylina/index.html
+
 高速稳定， 互联网自由，绝对隐私保护。
 
 突破限制，飞速体验，急速稳定，永不失联！
