@@ -3,7 +3,6 @@
 
 无限流量
 下载地址：
-https://share.qlbalaa.com/kylina/
 
 https://rebrand.ly/typeirz
 
