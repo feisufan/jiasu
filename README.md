@@ -1,13 +1,8 @@
 # 2020稳定高速靠谱的安卓加速利器，解锁全球
 
 1080P流畅视频，秒刷脸书ins油管
-
-# 安全 高速 匿名 稳定 防封
-
-# 海外技术研发团队，运营多年， 稳定 可靠 安全
-
-# 扔掉你手上的老款为屁恩吧，拥抱全新黑科技
-
+安全 高速 匿名 稳定 防封
+海外技术研发团队，运营多年， 稳定 可靠 安全
 解锁全球,无限流量
 
 下载地址：
@@ -18,6 +13,9 @@ https://rebrand.ly/typeirz
 https://wws.lanzous.com/iFUxNj973zi
 
 https://wws.lanzous.com/b01bxn99c
+
+https://kyjsq.lanzous.com/iSG1Okmzrrg
+
 
 官网下载：（需要科学尚往才能打开）
 https://share.kylinaccelerator.com/kylina/index.html
