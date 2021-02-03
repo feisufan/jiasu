@@ -10,9 +10,8 @@
 https://rebrand.ly/typeirz
 
 国内蓝奏网盘下载
-https://wws.lanzous.com/iFUxNj973zi
+https://laodi.lanzous.com/iqMEikn0cdi
 
-https://wws.lanzous.com/b01bxn99c
 
 https://kyjsq.lanzous.com/iSG1Okmzrrg
 
