@@ -6,14 +6,15 @@
 解锁全球,无限流量
 
 下载地址：
+https://bit.ly/31ISWxF
 
 https://rebrand.ly/typeirz
 
 国内蓝奏网盘下载
-https://laodi.lanzous.com/iqMEikn0cdi
+https://laodi.lanzoui.com/iqMEikn0cdi
 
 
-https://kyjsq.lanzous.com/iSG1Okmzrrg
+https://kyjsq.lanzoui.com/iSG1Okmzrrg
 
 
 官网下载：（需要科学尚往才能打开）
